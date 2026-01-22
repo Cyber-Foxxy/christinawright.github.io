@@ -1,2 +1,0 @@
-# christinawright.github.io
-webpage
